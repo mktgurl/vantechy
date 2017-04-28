@@ -15,9 +15,10 @@ https://www.linkedin.com/in/jahedmomand
 https://dribbble.com/jahedmomand  
 https://twitter.com/jahedmomand
 
-**When:** Apr 6, 2017 at 6pm 
-**Location:** Columbia Collective (810 Main Street, Vancouver, WA) 
-**Event:** https://www.meetup.com/VanTechy/events/237198545/ 
+**When:** Apr 6, 2017 at 6pm  
+**Location:** Columbia Collective (810 Main Street, Vancouver, WA)  
+**Event:** https://www.meetup.com/VanTechy/events/237198545/  
 Eric Preisz of #Vantechy meetup talks with Columbia Food Park's Alex Mickle and Kylan Johnson about a new food park venture in downtown Vancouver  
-**More info:** http://columbiafoodpark.com  
+**More info:**  
+http://columbiafoodpark.com  
 https://www.kickstarter.com/projects/1881605029/downtown-vancouver-washingtons-new-food-park/
